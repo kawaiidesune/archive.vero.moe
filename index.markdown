@@ -4,3 +4,4 @@
 
 layout: home
 ---
+This is archive.vero.moe. This site is a hodge podge of random crap.
