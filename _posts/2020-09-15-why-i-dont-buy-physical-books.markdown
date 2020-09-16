@@ -16,7 +16,7 @@ Firstly, Jeff Bezos and Amazon are legitimately creepy. [Manually removing copie
 
 Secondly, I had a Kindle before and it broke like a promise. I haven't found a way to protect Kindles from accidental damage, whether that accidental damage was from a drop or just from travelling in a purse. Kindles are fragile souls and, quite honestly, I'm not thrilled about that fact.
 
-Thirdly, I read a lot of Manga and I'd like a device that not only handles my regular books but also my manga collection.
+Thirdly, I read a lot of manga and I'd like a device that not only handles my regular books but also my manga collection.
 
 Being ingrained in the Apple ecosystem, I got myself an iPad Pro last month and I gotta say, this is a real game changer. I've been using it for a month for a variety of things but I've been planning to get one for a class at my synagogue to handle some of the readings. And while some of the books (Finding God and ) aren't available on the Apple Bookstore just yet, some (Living a Jewish Life and Jewish Literacy) are. And based on reading the book "Dreadnought" by April Daniels over the last week, I feel that the reading experience isn't too different from reading a physical book. Though, it is nice to have a bigger library in my hands and in my bag.
 
